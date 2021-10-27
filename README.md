@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Eren YILMAZ aka GandaloZ
+- 👀 I like breaking things down to learn how they are built and coding is a great way to do this therefore i enjoy coding too.
+- 🌱 I’m currently a college student studying computer systems and technology.
+- 💞️ I'm on this platform so i can share the things i did in my spare time.
+- 📫 How to reach me ylmz_eren1@hotmail.com is a way to contact me via e-mail or GandaloZ#4748 for my Discord.
